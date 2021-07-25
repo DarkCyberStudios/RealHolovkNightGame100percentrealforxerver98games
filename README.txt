@@ -5,7 +5,8 @@ Original Game: Hollow Knight
 Game Was Created To XerverGames
 (original) game created by: Team Cherry
 You Can Use This Game in Your Youtube And Twitch Videos and Streams But if you use this you need to copy and paste the video (or stream) description this:
-Game Used in this Video (or stream): HolovkNight Game Created By: HYP4ER Original Game Created By: Team Cherry This Game Downloaded From: https://xervergames.tr.gg/ Xerver Games Maked By: DarkCyberStudios (Xerver98Games ©CybxrStudios 2021)
+Game Used in this Video (or stream): HolovkNight Game Created By: HYP4ER Original Game Created By: Team Cherry This Game Downloaded From: https://xervergames.tr.gg/ 
+Xerver Games Maked By: DarkCyberStudios (Xerver98Games ©CybxrStudios 2021)
 
 Thanks :) 
 (btw if you dont credits these I will report you)
